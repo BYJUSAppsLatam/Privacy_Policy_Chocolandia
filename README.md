@@ -1,1 +1,1 @@
-# Privacy_Policy_Chocolandia_Shop
+# Privacy_Policy_Chocolandia
